@@ -7,7 +7,8 @@
 ![image](https://github.com/CrayonHanChan/chatbotproject_goaldam/assets/145984937/65ccbd59-3066-440f-ac81-a56aaa1affc8)
 
 
-![image](https://github.com/CrayonHanChan/chatbotproject_goaldam/assets/145984937/94309505-7b0a-4740-bc90-e4a32deb175c)
+![image](https://github.com/CrayonHanChan/chatbotproject_goaldam/assets/145984937/e2972719-d15f-4f80-8be7-76e37dcd9c1b)
+
 
 
 ![image](https://github.com/CrayonHanChan/chatbotproject_goaldam/assets/145984937/96297345-cf82-4c9b-8871-2c09f4b0b69b)
